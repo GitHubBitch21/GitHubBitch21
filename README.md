@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GitHubBitch21
+- 👋 Yup... ImMe @GitHubBitch21
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning anything i dont know yet
 - 💞️ I’m looking to collaborate on something with myself
